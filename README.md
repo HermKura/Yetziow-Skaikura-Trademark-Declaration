@@ -1,0 +1,1 @@
+# Yetziow-Skaikura-Trademark-Declaration
